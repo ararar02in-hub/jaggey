@@ -1,2 +1,3 @@
 # rick-N-roll
 not sure what to write 
+if u got any suggestion or if u can help me do join me...
